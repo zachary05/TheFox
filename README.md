@@ -1,2 +1,4 @@
 # TheFox
-I think it will be interesting.
+I think life will be interesting.
+
+THIS IS A RESUME>
